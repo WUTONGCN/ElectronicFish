@@ -71,3 +71,6 @@
 
 本应用仅供娱乐使用，请理性对待。
 
+<img width="2470" height="1124" alt="image" src="https://github.com/user-attachments/assets/5ae4b13f-0f26-4060-abda-3da19a666a47" />
+<img width="1052" height="860" alt="image" src="https://github.com/user-attachments/assets/f88cbb19-74bd-4f0d-ac89-1aa604d4ebc5" />
+
